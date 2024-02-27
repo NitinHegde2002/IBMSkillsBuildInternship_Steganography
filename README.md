@@ -1,0 +1,5 @@
+![1](https://github.com/NitinHegde2002/IBMSkillsBuildInternship_Steganography/assets/92938023/e5d36845-bcc8-4b78-9b1f-16b305450863)
+![2](https://github.com/NitinHegde2002/IBMSkillsBuildInternship_Steganography/assets/92938023/6c3f8f30-b4e1-4308-b376-497e792d4d25)
+![3](https://github.com/NitinHegde2002/IBMSkillsBuildInternship_Steganography/assets/92938023/b704ae5f-87e9-46cc-8f5e-cd70e9372fd3)
+![4](https://github.com/NitinHegde2002/IBMSkillsBuildInternship_Steganography/assets/92938023/446cb74c-712a-4e58-90cd-75872fb5dfab)
+![5](https://github.com/NitinHegde2002/IBMSkillsBuildInternship_Steganography/assets/92938023/ef269185-0ad6-4f60-81af-d752303f7220)
